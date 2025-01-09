@@ -1,1 +1,1 @@
-# frontend
+# soy programador en el 2026
